@@ -1,0 +1,1 @@
+# Mission-Encodeable-Level-1-Campfire-story
